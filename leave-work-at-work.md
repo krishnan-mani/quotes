@@ -1,0 +1,1 @@
+"... when I went home each evening, I left on my desk everything related to my work, but they went home with briefcases filled with the weight of work and fear ..." - Caroline Myss, in "Sacred Contracts"
